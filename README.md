@@ -415,9 +415,6 @@ TRANSACTIONS
 
 **Ashwin**
 
-B.Sc. Physics
-
-2022 Graduate
 
 ---
 
